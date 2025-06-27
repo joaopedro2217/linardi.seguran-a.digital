@@ -1,0 +1,1 @@
+# linardi.seguran-a.digital
